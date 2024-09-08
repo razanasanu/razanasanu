@@ -9,6 +9,9 @@ A PASSIONATE PYTHON FULLSTACK DEVELOPER
 💬 Ask me about Python,JS,React
 
 📫 How to reach me razanasanu134@gmail.com
+
+
+
 Connect with me:
 linkedin id :https://www.linkedin.com/in/razana-pa-907378313?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
